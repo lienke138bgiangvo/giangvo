@@ -1,4 +1,5 @@
-Lắp mạng FPT Thái Bình
+<a href="[https://chuyenlapmangfpt.com/](https://chuyenlapmangfpt.com/lap-mang-fpt-thai-binh/)"><b>Lắp mạng FPT Thái Bình</b></a>
+
 <span style="color: #000000;">Tổng đài <a href="https://chuyenlapmangfpt.com/"><b>lắp mạng FPT</b></a> Thái Bình - Quý khách hàng lắp mạng Wifi FPT tại Thái Bình vui lòng đến FPT Telecom hoặc liên hệ: 0968025375</span>
 
 <span style="color: #000000;">- Hỗ trợ tư vấn 24/7</span>
